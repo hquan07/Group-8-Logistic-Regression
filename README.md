@@ -8,6 +8,6 @@ Nguyễn Tuấn Hợp - BI12-178 - HopNT.BI12-178@st.usth.edu.vn
 Nguyễn Trường Giang - 23BI14139 - giangnt.23bi14139@usth.edu.vn
 Nguyễn Trọng Minh Đức - 22BA13082 - ducntm.22ba13082@usth.edu.vn
 
-If you have any question, contact with me: quanth.22ba13260@usth.edu.vn
+If you have any question, contact with me: quanth.22ba13260@usth.edu.vn or huyquan1607@gmail.com
 
 Thanks!
